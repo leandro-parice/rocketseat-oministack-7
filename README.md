@@ -1,1 +1,0 @@
-# rocketseat-oministack-7
